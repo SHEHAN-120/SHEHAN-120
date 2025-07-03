@@ -51,7 +51,7 @@ I'm a **Data Enthusiast** who loves to dive deep into datasets, uncover hidden p
 ### 📬 Get in Touch
 
 - 📧 Email: [ravindushehan.ob@gmail.com](mailto:ravindushehan.ob@gmail.com)  
-- 🔗 LinkedIn: [Connect with me](www.linkedin.com/in/ravindu-shehan-120abc)
+- 🔗 LinkedIn: [Connect with me](www.linkedin.com/in/shehan-induruwa-120abc)
 
 ---
 
